@@ -27,3 +27,9 @@ The next day, the alcoholic Schlucke is forced by his boss Werner Kampmann, to b
 
 > Allah, Allah. Der Pferd heißt Horst!
 
+## Logo
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Bang_boom_bang_logo.svg/600px-Bang_boom_bang_logo.svg.png"/>
+
+
+
