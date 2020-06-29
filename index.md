@@ -15,3 +15,15 @@ The next day, the alcoholic Schlucke is forced by his boss Werner Kampmann, to b
 * Alexandra Neldel as Melanie
 * Jochen Nickel as Franky
 
+## Quotes
+
+> 90-60-90. Dat sind die Noten, warum wir dich hier eingestellt haben
+
+> Andy, die rote Karte zahl ich
+
+> 90 Minuten Hardcore…echte Gefühle!
+
+> Wat weiß ich denn, wat in den sein Hundehirn vor sich geht
+
+> Allah, Allah. Der Pferd heißt Horst!
+
